@@ -1,2 +1,1 @@
-# yesthisisausern4me.github.io
-stuf
+delete delete delete you gah deleteeee delete it deleteeeeeeeeeeee
